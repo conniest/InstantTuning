@@ -19,6 +19,7 @@ So far this has been presented to the Palo Alto Amateur Radio Association (PAARA
 
 
 
-
+&nbsp;
+&nbsp;
 
 _In memoriam WA2DKJ and K2JAO_
