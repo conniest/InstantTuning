@@ -17,4 +17,8 @@ So far this has been presented to the Palo Alto Amateur Radio Association (PAARA
 
 73 es GL
 
+
+
+
+
 _In memoriam WA2DKJ and K2JAO_
